@@ -13,7 +13,7 @@
 
 ###
 
-<img align="right" height="130" src="https://i.imgflip.com/65efzo.gif"  />
+<img align="right" height="130" src="https://media1.tenor.com/m/bCfpwMjfAi0AAAAC/cat-typing.gif"  />
 
 ###
 
